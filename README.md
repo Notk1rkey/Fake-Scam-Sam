@@ -1,1 +1,1 @@
-# Fake-Scam-Sam
+# Fake-Scam.com
